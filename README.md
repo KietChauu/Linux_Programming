@@ -1,2 +1,2 @@
 # Linux_Programming
-![518713](https://github.com/user-attachments/assets/2e7c9549-42ac-4836-92c7-9aa393ed4891)
+https://smb-server.elite-jsc.vn/wp-content/uploads/2023/12/linux-server-co-kha-nang-tuong-thich-va-do-an-toan-cao.jpg
