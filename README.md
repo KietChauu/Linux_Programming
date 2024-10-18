@@ -1,2 +1,2 @@
 # Linux_Programming
-https://smb-server.elite-jsc.vn/wp-content/uploads/2023/12/linux-server-co-kha-nang-tuong-thich-va-do-an-toan-cao.jpg
+![image](https://github.com/user-attachments/assets/e92ddec1-e028-4097-9b8d-de560d65a5e5)
